@@ -1,2 +1,2 @@
 # mikigitcamk.github.io
-astrosailor blog
+astrosailor blog na hrvatskom
