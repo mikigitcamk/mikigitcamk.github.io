@@ -5,7 +5,7 @@ description: "Old blog at new home" # This will show up in places like twitter, 
 # Email / Social media user names used by the minima theme:
 # All of these are optional and can be removed or commented out
 #email: "example@mail.com"
-#github_username: "githubuser"
+github_username: "githubuser"
 
 #########################################################################################
 ######### Nothing below needs to be changed (unless you know what you're doing) #########
