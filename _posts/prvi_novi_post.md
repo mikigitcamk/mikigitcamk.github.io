@@ -1,1 +1,1 @@
-Provjerimo kako se snalazi sa hrvatskim: šđžčćŠĐŽČĆ
+Ovo je prvi novi unos: Provjerimo kako se snalazi sa hrvatskim: šđžčćŠĐŽČĆ
