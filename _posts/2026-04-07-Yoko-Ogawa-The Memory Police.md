@@ -1,5 +1,5 @@
 Dočitao sam pred nekoliko tjedana Yoko Ogawa "The memory police".
-Skoro kao "Auto da fe" E. Cannetija po efektu, ali djeluje više kao dobra
+Skoro kao "Auto da fe" E. Canettija po efektu, ali djeluje više kao dobra
 vježba pisanja literature nego kao literatura sama.
 
 Vrlo umješno, dobro napisano. Ne čudi me da je YO dobila sve te nagrade i
