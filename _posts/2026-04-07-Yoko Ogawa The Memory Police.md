@@ -1,4 +1,4 @@
-MC060426--Dočitao sam pred nekoliko tjedana Yoko Ogawa "The memory police".
+Dočitao sam pred nekoliko tjedana Yoko Ogawa "The memory police".
 Skoro kao "Auto da fe" E. Cannetija po efektu, ali djeluje više kao dobra
 vježba pisanja literature nego kao literatura sama.
 
