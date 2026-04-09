@@ -1,2 +1,2 @@
 # mikigitcamk.github.io
-Nastavak bloga na hrvatskom.
+Nastavak bloga astrosailor na hrvatskom.
