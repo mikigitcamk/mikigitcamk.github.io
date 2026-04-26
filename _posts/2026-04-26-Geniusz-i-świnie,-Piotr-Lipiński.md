@@ -8,4 +8,4 @@ iskorištene, ali ovdje to nije slučaj. Jedini neuspjeh je onaj tržišni.
 patetike.
 
 Dobar dio knjige je poučan i što se tiče utjecaja porodice na nečiji životni
-put. Preporučam!
+put. Također, zanimljiv kratki kurs dijela PL povijesti XX vijeka. Preporučam!
