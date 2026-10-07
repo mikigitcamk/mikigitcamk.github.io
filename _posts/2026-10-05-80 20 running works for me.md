@@ -1,4 +1,4 @@
-Five months and few buckets of sweat later, I can report that Matt Ftzgerald's advice on 80 20 runnong works for me!
+Five months and few buckets of sweat later, I can report that Matt Ftzgerald's advice on 80 20 running works for me!
 
 It brought me 40 mins improvement of PB in marathon, from 5h to 4:23-but even better than just the time difference was the fashion in which I finished: with a sprint!
 
