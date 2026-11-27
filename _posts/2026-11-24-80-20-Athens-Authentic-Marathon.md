@@ -1,10 +1,10 @@
 At 8th of November 2026 I run Athens Authentic Marathon and the result
 provides the ultimate verdict on 80-20 method: it works for me.
 
-I planned about 4:30 and did it in 4:36:14, without excessively tiring myself, even with the course
-360m ups and downs. I did the fast finish last kilometer, meaning I was not spent.
-It was ideal weather, not full sun but mixed with clouds, and not too warm,
-just pleasant 15 cels.
+I planned about 4:30 and did it in 4:36:14, without excessively tiring myself, even with
+the course's 360m ups and downs. I did the fast finish last kilometer, meaning I was not
+spent. It was ideal weather, not full sun but mixed with clouds, and not too warm, just
+pleasant 15 cels.
 
 After Poznań last month I followed, prompted by an experienced runner, the last month of
 preparations once again. This time about 100%, and I was lucky enough not to fall on flu
